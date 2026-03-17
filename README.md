@@ -23,3 +23,9 @@ INTERESSES e HOBBIES
 ⋆𐙚 Moda (Fashion Designer)
 
 ⋆𐙚 Música (Teclado e Piano)
+
+Conecte-se comigo:
+
+Linkedin: https://www.linkedin.com/in/isabella-andrade-2883453b8/
+
+Instagram:@Isabellaaa_andrade

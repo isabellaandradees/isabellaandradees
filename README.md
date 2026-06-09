@@ -29,3 +29,5 @@ Conecte-se comigo:
 Linkedin: https://www.linkedin.com/in/isabella-andrade-2883453b8/
 
 Instagram:@Isabellaaa_andrade
+
+e-mail: isabella.andradee.s@gmail.com

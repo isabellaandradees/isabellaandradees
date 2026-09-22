@@ -22,7 +22,7 @@ INTERESSES e HOBBIES
 
 ⋆𐙚 Moda (Fashion Designer)
 
-⋆𐙚 Música (Teclado e Piano)
+⋆𐙚 Música (Teclado/Piano e Guitarra)
 
 Conecte-se comigo:
 

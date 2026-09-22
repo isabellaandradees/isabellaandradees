@@ -2,7 +2,7 @@ Olá, sou a Isabella Andrade! ✨
 
 Sou estudante de Análise e Desenvolvimento de Sistemas no SENAI.
 
-Comecei minha jornada na tecnologia aos 15 anos e, desde então, venho descobrindo o quanto essa área pode se conectar com os meu interesses.💻💕
+Comecei minha jornada na tecnologia aos 16 anos e, desde então, venho descobrindo o quanto essa área pode se conectar com os meu interesses.💻💕
 
 ⋆𐙚 Atualmente: Estudando ADS no SENAI
 
